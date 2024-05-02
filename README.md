@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnamZahid
-- 👀 I’m interested in E-Commerce|Shopify Store developing | Social Media Marketing .
+- 👀 I’m interested in E-Commerce| Shopify Store developing | Social Media Marketing .
 - 🌱 I’m currently learning US Taxation.
 - 💞️ I’m looking to collaborate on store-developing.
 - 📫 How to reach me feel free to drop a message.
